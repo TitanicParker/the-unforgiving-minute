@@ -245,6 +245,18 @@ And that's where our freedom begins.
 
 Jesus also asked why we notice the speck in our brother's eye while overlooking the plank in our own.
 
+Think of the instruction we hear before an aeroplane takes off: **put on your own oxygen mask before helping someone else with theirs.**
+
+It isn't selfishness. It's the recognition that if you cannot breathe, you may be unable to help the person beside you.
+
+And there is a striking parallel in our relationships.
+
+Before John tries to correct Mary's behaviour, he needs to notice what is happening within himself. Before he can meet her with understanding, he needs to recognise the anger and the assumptions through which he is seeing her.
+
+**See clearly within yourself before trying to correct what you see in another.**
+
+This doesn't mean John must become perfect before he can help Mary. It means that attending to his own state first may make genuine help—and genuine love—possible.
+
 Isn't that precisely what's happening with John?
 
 He's intensely aware of Mary's supposed wrongdoing.
